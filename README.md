@@ -12,4 +12,3 @@ My background in acting helps me bring creativity, communication, and strong att
 - [instagram](https://www.instagram.com/nikitaburenok/)
 - [Threads](https://www.threads.com/@nikitaburenok)
 - [Gmail](mailto:burenoknikitad@gmail.com)
-- [Mobile phone](tel:+4915205342922)
