@@ -7,9 +7,9 @@ My background in acting helps me bring creativity, communication, and strong att
 
 ## Contact
 
-- GitHub: [github.com/MykytaBurenok](https://github.com/MykytaBurenok)
-- LinkedIn: [linkedin.com/in/your-profile](https://www.linkedin.com/in/your-profile)
-- Instagram: [instagram.com/nikitaburenok](https://www.instagram.com/nikitaburenok/)
-- Threads: [threads.com/@nikitaburenok](https://www.threads.com/@nikitaburenok)
-- Email: [your-email@gmail.com](mailto:burenoknikitad@gmail.com)
-- Phone: [+49 your-number](tel:+4915205342922)
+- [GitHub](https://github.com/MykytaBurenok)
+- [linkedin](https://www.linkedin.com/in/your-profile)
+- [instagram](https://www.instagram.com/nikitaburenok/)
+- [Threads](https://www.threads.com/@nikitaburenok)
+- [Gmail](mailto:burenoknikitad@gmail.com)
+- [Mobile phone](tel:+4915205342922)
